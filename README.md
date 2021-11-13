@@ -1,1 +1,1 @@
-He run from nothing dog, get your soliders tell em the break is over. 
+He run from nothing dog, get your soldiers tell em the break is over. 
