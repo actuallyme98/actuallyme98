@@ -1,1 +1,1 @@
-I just took a test it's sounding like my shit go stupid.
+the future so bright, we ain't looking at the pass.
